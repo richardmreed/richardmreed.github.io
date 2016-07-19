@@ -1,2 +1,0 @@
-# richardmreed.github.io
-resume
